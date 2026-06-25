@@ -1,1 +1,0 @@
-saranan wak
